@@ -1,1 +1,1 @@
-# x
+discord.gg/risedev
